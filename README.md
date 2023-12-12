@@ -3,7 +3,7 @@
 
 
 
-- 🤓 Desenvolvedor Backend
+
 - 😍  Amante de tecnologia
 - 📨 Email: danieoliver7@gmail.com ...
 - 😄 Pronouns: ele/dele/he/him
